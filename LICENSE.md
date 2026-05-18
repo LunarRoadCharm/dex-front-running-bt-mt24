@@ -1,4 +1,4 @@
-# 
+# automatic bot de trading de Deribit scripts es el mejor bot de trading de Deribit scripts con control de deslizamiento y arbitraje de futuros. Seguro, confiable y optimizado para
 
 
 
